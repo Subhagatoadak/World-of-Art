@@ -1,6 +1,7 @@
 
 # **Veil of Silence: A Study in Shadows and Emotion**
 
+<img width="520" alt="veilofsilence" src="https://github.com/user-attachments/assets/d0314da8-1c10-4583-9315-14fed049c072" />
 
 ## **Introduction**
 *"Veil of Silence"* is a striking black-and-white artwork that captures the raw emotion of a partially obscured face peering through a barrier. The image evokes themes of isolation, vulnerability, and silent suffering, with a dramatic interplay of light and shadow enhancing its haunting presence.
