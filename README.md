@@ -31,7 +31,7 @@ This repository contains:
 This repository is a demonstration of AI’s potential in the art world. Contributions in the form of artwork submissions, critique ideas, and AI-generated experiments are welcome. Feel free to open an issue or submit a pull request.
 
 ## License
-This project is licensed under the **MIT License**.
+This project is licensed under the **Creative common license**.
 
 ---
 
