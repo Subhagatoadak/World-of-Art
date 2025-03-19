@@ -1,7 +1,10 @@
-# **The Flight of Transcendence**
+
+**The Flight of Transcendence**
 
 ## **Introduction**
 Welcome to this artistic exploration of *The Flight of Transcendence*, a striking charcoal drawing that embodies themes of liberation, struggle, and transformation. This blog post serves as both a **critical interpretation** and an **artistic breakdown** of the piece, offering insights into its expressive composition and underlying symbolism.
+
+# <img width="807" alt="Flightoftranscendence" src="https://github.com/user-attachments/assets/72f2998e-75dd-48d4-a08d-e1008fde5070" />
 
 
 ## **Critical Interpretation**
@@ -38,5 +41,9 @@ This piece demonstrates an impressive command over **charcoal as a medium**, whi
 As viewers, we are invited to explore its meaning through both **form and emotion**, making it a truly engaging and evocative piece.
 
 ---
+
+AI generated image:![DALL·E 2025-03-19 18 19 00 - A dramatic charcoal-style illustration of a bearded man with outstretched arms, his body partially dissolving into shadowy darkness  He is imprisoned ](https://github.com/user-attachments/assets/47714804-f4d8-49cf-9b98-bd86ad7cc8cc)
+
+
 
 If you enjoyed this breakdown, consider sharing your thoughts or interpretations in the comments! Stay tuned for more artistic explorations.
