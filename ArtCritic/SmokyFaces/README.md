@@ -1,5 +1,7 @@
 # The Ephemeral Faces of Smoke: A Surrealist Interpretation
 
+<img width="610" alt="SmokyFaces" src="https://github.com/user-attachments/assets/642b61b4-08a0-48ee-9f20-251cee72351b" />
+
 Art has long been a medium for exploring the complexities of human thought, emotion, and existence. The image before us—a hand holding a cigarette, with its smoke twisting into ghostly faces—presents a compelling narrative of impermanence, addiction, and the subconscious mind. Through delicate yet expressive line work, this drawing invites viewers to reflect on fleeting thoughts, memories, and the self's transitory nature.
 
 ## A Glimpse into the Symbolism
